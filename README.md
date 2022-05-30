@@ -1,0 +1,1 @@
+# hava_durumuna_gore_etkinlik
